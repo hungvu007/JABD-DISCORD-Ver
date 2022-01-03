@@ -1,2 +1,2 @@
 # JABD-DISCORD-Ver
-# lười
+# lười :)))
